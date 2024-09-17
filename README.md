@@ -1,7 +1,7 @@
 - 👋 Hi, my name is Andrew Laboy!
 - 👀 I’m interested in becoming a Software Engineer.
 - 🌱 I’m currently learning how to become a better programmer.
-- 💞️ I’m looking to collaborate on my creativity and thinking outside of the box.
+- 💞️ My dream future job is to work for Riot Games!
 - 📫 How to reach me: You can reach me at drewserrr@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love peripherals and playing games.
